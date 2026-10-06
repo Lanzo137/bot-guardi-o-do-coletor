@@ -1,0 +1,1 @@
+# bot-guardi-o-do-coletor
